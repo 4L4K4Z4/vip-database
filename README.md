@@ -29,4 +29,4 @@ Want any database contact me
 
 Many More
 
-For buy (uncodeboss)[https://t.me/uncodeboss]
+For buy uncodeboss)(https://t.me/uncodeboss)
